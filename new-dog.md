@@ -1,0 +1,2 @@
+Alaskan Malamute
+Rottweiler
